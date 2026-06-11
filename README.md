@@ -4,4 +4,4 @@ Many speculation
 that base is coming on its way
 I am hoping and praying that I will be 
 eligible this is my last hope
-because I am
+because I am airdrops
