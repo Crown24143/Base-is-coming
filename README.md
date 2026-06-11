@@ -10,4 +10,4 @@ Even a thousand dollar can change
 my family's live. I believe I base. 
 Base is the one, the key, the king, the chance, the change, the great
 the everything. 
-So to get into one I have to 
+So to get into one I have to be base
